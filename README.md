@@ -25,9 +25,9 @@ Aimee's thoughts: TBD
 
 Brian's thoughts: I'm not hungry in the morning.
 
-#### Meal 1
+#### Meal 2
 
-Yogurt, Oats, Coffee.
+Coffee.
 
 ![2021-01-22_2](images/2021-01-22_2.jpg)
 

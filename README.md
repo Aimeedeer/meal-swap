@@ -7,7 +7,9 @@ for the purposes of losing and gaining weight.
 
 Each one prepares their own meal, and then serves it to the other.
 
+
 ## Swap-log!
+
 
 ### 2021-01-22 Friday
 
@@ -16,4 +18,23 @@ Each one prepares their own meal, and then serves it to the other.
 Yogurt, Oats, Coffee.
 
 ![2021-01-22_1](images/2021-01-22_1.jpg)
+
+Aimee <-> Brian
+
+Aimee's thoughts: TBD
+
+Brian's thoughts: I'm not hungry in the morning.
+
+#### Meal 1
+
+Yogurt, Oats, Coffee.
+
+![2021-01-22_2](images/2021-01-22_2.jpg)
+
+Aimee <-> Brian
+
+Aimee's thoughts: TBD
+
+Brian's thoughts: Aimee's coffee with a little bit of soy milk is delicious.
+Mine is drinkable.
 

@@ -15,8 +15,8 @@ Each one prepares their own meal, and then serves it to the other.
 
 Yogurt, Oats, Coffee.
 
-|::|
+|: :|
 | - |
 |![2021-01-22_1](images/2021-01-22_1.jpg)|
-||Aimee <-> Brian||
+|Aimee <-> Brian|
 

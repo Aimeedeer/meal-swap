@@ -7,3 +7,7 @@ for the purposes of losing and gaining weight.
 
 Each one prepares their own meal, and then serves it to the other.
 
+## Swap-log!
+
+### 2021-01-22 Friday
+

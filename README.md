@@ -27,7 +27,7 @@ Brian's thoughts: I'm not hungry in the morning.
 
 #### Meal 2
 
-Coffee.
+Coffee (French press).
 
 ![2021-01-22_2](images/2021-01-22_2.jpg)
 
@@ -37,4 +37,5 @@ Aimee's thoughts: TBD
 
 Brian's thoughts: Aimee's coffee with a little bit of soy milk is delicious.
 Mine is drinkable.
+We don't typically use a French press.
 

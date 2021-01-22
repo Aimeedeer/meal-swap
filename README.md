@@ -21,7 +21,9 @@ Yogurt, Oats, Coffee.
 
 Aimee <-> Brian
 
-Aimee's thoughts: I'm hungry and I want more yogurt and honey.
+Aimee's thoughts: 
+I'm hungry, and I want more yogurt and honey rather than banana chips or walnuts.
+I think I'm drinking milk but not coffee.
 
 Brian's thoughts: I'm not hungry in the morning.
 

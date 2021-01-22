@@ -21,7 +21,7 @@ Yogurt, Oats, Coffee.
 
 Aimee <-> Brian
 
-Aimee's thoughts: TBD
+Aimee's thoughts: I'm hungry and I want more yogurt and honey.
 
 Brian's thoughts: I'm not hungry in the morning.
 
@@ -33,7 +33,7 @@ Coffee (French press).
 
 Aimee <-> Brian
 
-Aimee's thoughts: TBD
+Aimee's thoughts: I am eyeing Brian's coffee, that classic black coffee.
 
 Brian's thoughts: Aimee's coffee with a little bit of soy milk is delicious.
 Mine is drinkable.

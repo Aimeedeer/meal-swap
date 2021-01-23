@@ -109,7 +109,7 @@ Baked brussel's sprouts and goop-covered chicken,
 paired with the same wine from the afternoon.
 
 Our plan was to make nachos tonight,
-but as previously stated,
+but as previously mentioned,
 we were thwarted at the grocery store and bought wine instead of nacho parts.
 
 ![2021-01-22_5](images/2021-01-22_5.jpg)

@@ -54,7 +54,7 @@ paired with CBD sparkling water that we received as a housewarming gift.
 Aimee's thoughts:
 I am not a big fan of fried food, but I do like fried tofu.
 The tree(broccoli) tastes great with a bit of fried flour on it.
-I want more vegetables and I feed those to Brian, but I couldn't eat more tofu as Brian's appetite.
+I want more vegetables and I feed those to Brian, but I couldn't eat more tofu as his appetite.
 
 Brian's thoughts:
 We struggled to figure out how to swap a shared plate.
@@ -82,7 +82,9 @@ So we kept walking and found an excellent wine store.
 ![2021-01-22_4](images/2021-01-22_4.jpg)
 
 Aimee's thoughts:
-TBD
+This might be the oldest wine I've ever had. It tastes not-waking-up yet at first,
+and still very tender  in last glass. We've been confusing about
+"I want more, should I pour another in my glass or his/her glass".
 
 Brian's thoughts:
 TBD

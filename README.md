@@ -156,6 +156,6 @@ Coffee.
 _Aimee's thoughts_:
 TBD
 
-Brian's thoughts_:
+_Brian's thoughts_:
 Aimee woke up this morning and ate a non-meal-swap meal!
 Not fair!

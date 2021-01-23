@@ -46,7 +46,8 @@ We don't typically use a French press.
 #### Meal 3
 
 Tofu and broccoli,
-fried in olive oil.
+fried in olive oil,
+paired with CBD sparkling water that we received as a housewarming gift.
 
 ![2021-01-22_3](images/2021-01-22_3.jpg)
 
@@ -58,6 +59,9 @@ We struggled to figure out how to swap a shared plate.
 In the end we picked the bites we wanted,
 and traded them.
 I did not receive a satisfying quantity of tofu.
+
+The CBD water was as dumb as expected &mdash;
+bad taste, no chill.
 
 
 #### Meal 4

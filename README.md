@@ -24,6 +24,23 @@ and on the right is _Brian's_ original meal
 ## Swap-log!
 
 
+### 2021-01-23 Saturday
+
+
+#### Meal 1 · 12:24 PM
+
+Coffee.
+
+![2021-01-23_1](images/2021-01-23_1.jpg)
+
+_Aimee's thoughts_:
+TBD
+
+_Brian's thoughts_:
+Aimee woke up this morning and ate a non-meal-swap meal!
+Not fair!
+
+
 ### 2021-01-22 Friday
 
 
@@ -146,20 +163,3 @@ Not fair!
 My tea tasted ok.
 
 Would have liked some soy milk in it.
-
-
-### 2021-01-23 Saturday
-
-
-#### Meal 1 · 12:24 PM
-
-Coffee.
-
-![2021-01-23_1](images/2021-01-23_1.jpg)
-
-_Aimee's thoughts_:
-TBD
-
-_Brian's thoughts_:
-Aimee woke up this morning and ate a non-meal-swap meal!
-Not fair!

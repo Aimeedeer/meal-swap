@@ -100,7 +100,11 @@ and still very tender in last glass. We've been confusing about
 "I want more, should I pour another in my glass or his/her glass".
 
 _Brian's thoughts_:
-TBD
+Liked it!
+I like most dry red wines lately,
+particularly if they've got a bit of spicy kick to them.
+The flavor's not all that exciting,
+but it's not boring.
 
 
 #### Meal 5 · 8:53 PM

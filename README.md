@@ -52,7 +52,9 @@ paired with CBD sparkling water that we received as a housewarming gift.
 ![2021-01-22_3](images/2021-01-22_3.jpg)
 
 Aimee's thoughts:
-TBD
+I am not a big fan of fried food, but I do like fried tofu.
+The tree(broccoli) tastes great with a bit of fried flour on it.
+I want more vegetables and I feed those to Brian, but I couldn't eat more tofu as Brian's appetite.
 
 Brian's thoughts:
 We struggled to figure out how to swap a shared plate.

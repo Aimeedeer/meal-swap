@@ -51,7 +51,11 @@ TBD
 
 _Brian's thoughts_:
 Aimee woke up this morning and ate a non-meal-swap meal!
+It's not even documented!
+It was just a regular meal!
 Not fair!
+
+The coffee was fine.
 
 
 #### Meal 2 · 2:32 PM

@@ -1,12 +1,25 @@
 # meal-swap
 
-A project to swap meals between a fat man and a skinny girl
+A project to swap meals between a big boy and a skinny girl
 for the purposes of losing and gaining weight.
 
 ## How it works
 
-Each one prepares their own meal, and then serves it to the other.
+Each of participant prepares their plate / cup,
+and places it in front of themselves.
+Immediately before eating
+they each exclaim "meal swap!",
+and rotate their plates and cups to be in front
+of the other.
 
+They proceed to enjoy or dis-enjoy their partner's meal,
+and complain about it on this page.
+
+In each picture,
+on the left is _Aimee'_ original meal
+(the one Brian gets to eat),
+and on the right is _Brian's_ original meal
+(the one Aimee gets to eat).
 
 ## Swap-log!
 

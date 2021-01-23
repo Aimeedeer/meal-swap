@@ -23,6 +23,19 @@ and on the right is _Brian's_ original meal
 
 ## Swap-log!
 
+<!-- template
+
+#### Meal X · XX:XX PM
+
+![2021-01-XX_1](images/2021-01-XX_X.jpg)
+
+_Aimee's thoughts_:
+TBD
+
+_Brian's thoughts_:
+TBD
+
+-->
 
 ### 2021-01-23 Saturday
 
@@ -39,6 +52,84 @@ TBD
 _Brian's thoughts_:
 Aimee woke up this morning and ate a non-meal-swap meal!
 Not fair!
+
+
+#### Meal 2 · 2:32 PM
+
+Yòuzi.
+
+Surprise find in the local grocery today.
+
+![2021-01-23_2](images/2021-01-23_2.jpg)
+
+_Aimee's thoughts_:
+TBD
+
+_Brian's thoughts_:
+Love these so much.
+We both wanted to eat as much as we can,
+so the swap was basically a nop.
+
+
+#### Meal 3 · 2:42 PM
+
+Nectarines.
+
+
+![2021-01-23_3](images/2021-01-23_3.jpg)
+
+_Aimee's thoughts_:
+TBD
+
+_Brian's thoughts_:
+Aimee really wanted one of these,
+so in order for her to eat them I needed to _pretend to want one_.
+Then,
+because she really wanted to eat one,
+I ended up _having_ to eat one!
+It was both reality-bending,
+and ultimately I think an exploit of a loophole in the meal-swap ruleset.
+
+
+#### Special Tasting! · 3:41 PM
+
+Tortilla chips.
+
+Chips on the left are baked in extra virgin cold pressed avocado oil,
+on the right in refined avocado oil.
+Both mixed with some lime juice and salt.
+
+![2021-01-23_t1](images/2021-01-23_t1.jpg)
+
+_Aimee's thoughts_:
+TBD
+
+_Brian's thoughts_:
+Though the oils taste different,
+the chips don't.
+Sad result.
+
+
+#### Meal 4 · 4:37 PM
+
+Nachos, with garnacha.
+
+Nobody can stop us from making killer nachos,
+nor from drinking a delicious garnacha.
+
+![2021-01-23_4](images/2021-01-23_4.jpg)
+
+_Aimee's thoughts_:
+TBD
+
+_Brian's thoughts_:
+So good.
+We both wanted scarf these down,
+and again with the single plate,
+it was not clear how to conduct the meal-swap.
+We ended up inventing the "chip-swap",
+a type of meal swap where we each load up our favorite chip
+and deliver it to the other.
 
 
 ### 2021-01-22 Friday

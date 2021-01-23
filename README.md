@@ -128,7 +128,7 @@ TBD
 
 _Brian's thoughts_:
 So good.
-We both wanted scarf these down,
+We both wanted to scarf these down,
 and again with the single plate,
 it was not clear how to conduct the meal-swap.
 We ended up inventing the "chip-swap",

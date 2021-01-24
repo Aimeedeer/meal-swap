@@ -47,7 +47,11 @@ Coffee.
 ![2021-01-23_1](images/2021-01-23_1.jpg)
 
 _Aimee's thoughts_:
-TBD
+I had my first meal, typical yogurt bow and black coffee,
+about four hours earlier, and this is my second meal of the day.
+I am not hungry, but I'd love to have another coffee.
+I feel I am drinking milk, though.
+I don't think I ever liked milk in my life.
 
 _Brian's thoughts_:
 Aimee woke up this morning and ate a non-meal-swap meal!
@@ -67,7 +71,9 @@ Surprise find in the local grocery today.
 ![2021-01-23_2](images/2021-01-23_2.jpg)
 
 _Aimee's thoughts_:
-TBD
+I am confusing with the swap process that whether 
+I should put in the piece of Yòuzi to Brian's mouth or mine. 
+First time I learned eating with the thin skin on. Yummy!
 
 _Brian's thoughts_:
 Love these so much.
@@ -83,7 +89,8 @@ Nectarines.
 ![2021-01-23_3](images/2021-01-23_3.jpg)
 
 _Aimee's thoughts_:
-TBD
+Nectarines look fresh and delicious.
+Brian finally agreed on this meal-swap, and I got my nectarine! 
 
 _Brian's thoughts_:
 Aimee really wanted one of these,
@@ -106,7 +113,8 @@ Both mixed with some lime juice and salt.
 ![2021-01-23_t1](images/2021-01-23_t1.jpg)
 
 _Aimee's thoughts_:
-TBD
+I like the left chips better because they are more crispy.
+I can't tell the differences from oils.
 
 _Brian's thoughts_:
 Though the oils taste different,
@@ -124,7 +132,16 @@ nor from drinking a delicious garnacha.
 ![2021-01-23_4](images/2021-01-23_4.jpg)
 
 _Aimee's thoughts_:
-TBD
+
+This is the best nachos! Everything is perfect, and
+each step is well processed: the guacamole, beans, chicks...
+We can't stop thinking of inviting friends and neighbors to
+our nachos pub!
+We usually exchange chips as each preference,
+chips with more beans and chinks are for Brian,
+chips with more guacamole are for Aimee.
+Now I am confusing again: when I get a chip full of
+beans and plan to deliver to Brian, should I swap back to myself?
 
 _Brian's thoughts_:
 So good.

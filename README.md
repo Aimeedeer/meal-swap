@@ -37,6 +37,37 @@ TBD
 
 -->
 
+### 2021-01-24 Sunday
+
+#### Meal 1 · 9:15 AM
+
+Toast and coffee.
+
+_Aimee's thoughts_:
+We got new break yesterday, and I want bread instead of
+yogurt bowl this morning.
+I kind of want some butter for my bread too
+-- we usually couple bread with olive oil and balsamic.
+Brian didn't finish his coffee, so I helped!
+
+_Brian's thoughts_:
+TBD
+
+
+#### Meal 2 · 11:15 AM
+
+Rosy black tea.
+
+![2021-01-24_2](images/2021-01-24_2.jpg)
+
+_Aimee's thoughts_:
+We both wanted plain tea at first, but end up with adding milk
+because it was too strong and bitter for drinking directly.
+I started to appreciate tea with milk in it.
+
+_Brian's thoughts_:
+TBD
+
 ### 2021-01-23 Saturday
 
 

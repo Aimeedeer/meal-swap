@@ -135,6 +135,8 @@ We ended up inventing the "chip-swap",
 a type of meal swap where we each load up our favorite chip
 and deliver it to the other.
 
+The garnacha is the most uninteresting wine of this variety I've had in recent memory.
+
 
 ### 2021-01-22 Friday
 

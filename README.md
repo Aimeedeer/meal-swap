@@ -71,7 +71,7 @@ Surprise find in the local grocery today.
 ![2021-01-23_2](images/2021-01-23_2.jpg)
 
 _Aimee's thoughts_:
-I am confusing with the swap process that whether 
+I am confused with the swap process that whether 
 I should put in the piece of Yòuzi to Brian's mouth or mine. 
 First time I learned eating with the thin skin on. Yummy!
 
@@ -132,15 +132,14 @@ nor from drinking a delicious garnacha.
 ![2021-01-23_4](images/2021-01-23_4.jpg)
 
 _Aimee's thoughts_:
-
 This is the best nachos! Everything is perfect, and
 each step is well processed: the guacamole, beans, chicks...
 We can't stop thinking of inviting friends and neighbors to
 our nachos pub!
 We usually exchange chips as each preference,
-chips with more beans and chinks are for Brian,
+chips with more beans and chicks are for Brian,
 chips with more guacamole are for Aimee.
-Now I am confusing again: when I get a chip full of
+Now I am confused again: when I get a chip full of
 beans and plan to deliver to Brian, should I swap back to myself?
 
 _Brian's thoughts_:

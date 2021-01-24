@@ -154,8 +154,25 @@ and deliver it to the other.
 The garnacha is the most uninteresting wine of this variety I've had in recent memory.
 
 
-### 2021-01-22 Friday
+#### Meal 5 · 9:00 PM
 
+Passionflower tea.
+
+![2021-01-23_5](images/2021-01-23_5.jpg)
+
+_Aimee's thoughts_:
+Both of us wanted tea and I prepared passionflower tea again. 
+This time, I think I was preparing a real Brian's type of tea (with soy milk) for Brian, 
+and the other plain tea for myself. 
+Brian stared at the milk cup with greedy eyes. 
+After the meal swap, he had a sip of my tea (original his tea).
+At the end, he couldn't finish the plain tea that is swapped with me.
+I finished mine, even I still think it's a milk tea, or rather, milk.
+
+_Brian's thoughts_:
+TBD
+
+### 2021-01-22 Friday
 
 #### Meal 1 · 10:56 AM
 
@@ -248,7 +265,14 @@ we were thwarted at the grocery store and bought wine instead of nacho parts.
 
 ![2021-01-22_5](images/2021-01-22_5.jpg)
 
-_Aimee's thoughts_: TBD
+_Aimee's thoughts_: 
+We chose lazy cooking for this meal -- throw everything in the oven. 
+Brian invented a new sauce for baking meat, it didn't turn out as he expected, though.
+I think chicken looks good when I cut it and tasted tender too. 
+A bit of maple syrup on Brussels's sprouts helped the coloring. 
+Brian love it! He loves syrup anyway.
+Now I have to eat a big piece of chicken and too many vegetables in my meal.
+I think Brian is still hungry.
 
 _Brian's thoughts_:
 I tried to invent a batter for the chicken,
@@ -264,7 +288,7 @@ Passionflower tea.
 ![2021-01-22_6](images/2021-01-22_6.jpg)
 
 _Aimee's thoughts_:
-TBD
+Both of us wanted tea and I prepared passionflower tea again. This time, I think I was preparing a real Brian's type of tea (with soy milk) for Brian, and the other plain tea for myself, and we swapped them
 
 _Brian's thoughts_:
 The best part about this drink
